@@ -1,2 +1,7 @@
-# ejercicio7
-ejer7
+hytjubtrtrhyrtyhyh
+ytujythgy
+rfgnbytujijmrw
+sdfgyu36554
+fedgbytbtrg
+6546984ewdrtefbfev+
+
